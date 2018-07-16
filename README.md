@@ -1,2 +1,2 @@
-# The-Last-Self-Help-Book
+# The Last Self-Help Book
 Book
